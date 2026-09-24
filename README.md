@@ -1,1 +1,2 @@
 # JunAndCami
+Cami loves Jun, but Jun loves himself, so Cami want to change the mind of Jun, and tried to bend Jun. Jun resists and trained to not be controled. We hope that Jun can keep his mind out of all these things. Ok, fine, thats all, see you next time. 
